@@ -1,4 +1,4 @@
-# Snow Pro Core Certification in 10 days! 
+# Snow Pro Core Certification! 
 
 ### SnowPro Certifications 
  
